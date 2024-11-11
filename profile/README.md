@@ -1,1 +1,1 @@
-## Passionate enthusiasts who are eager to create open-source projects and deliver innovative solutions
+## Passionate students building cool Open-Source projects 
